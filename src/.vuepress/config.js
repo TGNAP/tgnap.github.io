@@ -48,6 +48,10 @@ module.exports = {
         text: "Discord",
         link: "https://discord.gg/McNyfhH",
       },
+      {
+        text: "Minecraft server",
+        link: "https://www.tecnagamer.com/archive.html",
+      },
     ],
     sidebar: {
       "/entries/": [
