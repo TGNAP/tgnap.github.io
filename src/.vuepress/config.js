@@ -53,7 +53,6 @@ module.exports = {
       "/entries/": [
         {
           title: "TGN",
-          collapsable: false,
           children: [
             "TGN/alfredo-x-reader",
             "TGN/cipen",
@@ -77,7 +76,6 @@ module.exports = {
         },
         {
           title: "TG 1.15",
-          collapsable: false,
           children: [
             "TG/1-15/ethan-x-mario",
             "TG/1-15/the-ballad-of-the-n-word",
@@ -89,7 +87,6 @@ module.exports = {
         },
         {
           title: "TG 1.16",
-          collapsable: false,
           children: [
             "TG/1-16/cheese-vs-ethan-fanfic-act-1",
             "TG/1-16/demise-escapes-the-irs",
@@ -103,7 +100,6 @@ module.exports = {
         },
         {
           title: "NSFW",
-          collapsable: false,
           children: [
             "nsfw/death-grips-x-oppo",
             "nsfw/fox-x-rachnera",
@@ -118,7 +114,6 @@ module.exports = {
         },
         {
           title: "Discord Dumps",
-          collapsable: false,
           sidebarDepth: 0,
           children: [
             "discord-dumps/oppo-rd-discord-dump",
@@ -128,7 +123,6 @@ module.exports = {
         },
         {
           title: "Other",
-          collapsable: false,
           children: [
             "other/smegs-autobiography",
           ],
