@@ -1,0 +1,7 @@
+# The Great Retard War (or how I learned to stop worrying and love the bomb): Chapter 1 (a novel by Firestorm5678/rcfan34)
+
+::: info
+According to our knowledge, this chapter is the only work in the series.
+:::
+
+IT was a great and sunny day in the great continent/planet/universe of tgn, and kerrywood3 was walking around the nether highway in his car. He turned on the radio and heard the voice of a 12 year old screaming: "I WILL ENSLAVE THE ENITE TGN MINECRAFTSERVER JUST YOU WAIT MOTHERFUCKERS"! Kerrywood tried to radio in for him to shut the fuck up but the kid just shut off the radio station. Kerry pulled over the car and tried to figure out who that was. He turned the radio back on and listened for a name, when he heard that it was Marc from the great and esteemed and not dead phu bai he immediately drove to the -x highway. He was stopped by a very handsome and sexy man who asked him if he was interested in any gamer oil. Kerry was confused and got out of his car and asked him to demonstrate what gamer oil was. The beautiful man pulled out something called "special k" Kerry was confused so he tried some of it, but he soon found himself experiencing the symptoms of ketamine. The handsome, strapping young lad jumped into Kerry's car and drove away. Kerry watched the chat to try to see where the beautiful young gent was going. He realized that the sexy man was FireStorm5678, leader of the grand and large Phu Bai. Kerry quickly yoinked some wood from a corpse and built a boat to go to phu bai.

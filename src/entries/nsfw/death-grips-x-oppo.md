@@ -1,0 +1,11 @@
+# Death Grips x Opportunity (by Mboo)
+
+::: danger NSFW
+This work is not safe for work.
+:::
+
+It was a beautiful day, and Mboo had just gone outside for the first time in, like, a year. Her parents were driving her to the Death Grips concert with her friends. She couldn’t wait to see MC Ride’s sexy body, Zach Hill’s beautiful face, and the other guy nobody fucking cares about. Wasn’t Andy his name? Well whatever. Her parents drove her to the concert and she got out with her friends, Jaxon and Pixela. They walked into the concert place, whatever the fuck it’s called, nobody cares. They jammed out to Death Grips for what seemed like forever. MC Ride’s vocals were so sexy. She just wanted to do so many things to him. When it ended MC Ride noticed them. “YOU LOOK LIKE A SEXY GIRL WANNA COME TO OUR PLACE WITH YOUR FRIENDS?” he yelled. Mboo blushed. “Y-yes senpai...” MC Ride grabbed her by the ass like a chad and lead her to the car with her friends and MC Ride’s bandmates. They drove to where the band was staying in the hotel. They got out and went in.
+
+Then, MC Ride’s chad grip grabbed her by the neck and kissed her. She loved it. She was then slammed onto the bed and undressed. Zach Hill said “Damn this bitch is hot...” and pulled down his pants and shoved his meaty cock in her mouth. She gagged as she struggled to take it in but she loved the taste. Mboo’s friends were surprised at first, but eager to join in. They pulled down their pants and Jaxon began using her feet while Andy started fucking Pixela in the ass. Zach Hill finished down her throat and she savored the taste. She was then flipped over and MC Ride began fucking her ass. She moaned in pleasure as he hit her in the best spots. Jaxon came all over MC Ride’s back. MC Ride loved the pleasure of this and came deep into Mboo’s ass, which made her cum too. Jaxon then got in front of Pixela and had him fuck his ass to make an assfucking sandwich. MC Ride joined in front of Jaxon, and Mboo got in front of MC Ride. They began fucking and fucking, until they each came. It was like some sort of highly erotic human centipede with dicks. They all collapsed on the ground from exhaustion, as MC Ride tonguekissed with Mboo and screamed loudly, “I WANT IT I NEED IT NEED IT TO MAKE ME FEEL HEATED HEATED” Mboo blushed, and enjoyed his chad kiss.
+
+The End.

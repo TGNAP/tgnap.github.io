@@ -1,0 +1,3 @@
+# Val x Brush (by Jaxon/Pansear70)
+
+Val and Nino sat on the bed, in Nino's room. Nino was calm, while Val seemed nervous, her eyes darting back and forth. "Are you sure this is...legal? Morally okay?" Asked Val as she squirmed slightly. "Yes honey, it's fine, now go on!" Replied Nino, with a smug look. Val timidly picked up the brush, and put it just a "hair" away from her lips. She opened her mouth, her eyes going wide as the bristles ran across the small bumps and notches of her tongue. Nino began to laugh hysterically, as Val sheepishly looked at him. Suddenly, the door burst open, as Pixela, Dragon, Pen and Jaxon burst through the door. Queen came in after them with a large film camera, as Pixela shouted, "CONGRATULATIONS, YOU JUST GOT, SMARTPHOWNED!"

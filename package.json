@@ -1,0 +1,16 @@
+{
+  "name": "tgnap",
+  "version": "0.0.1",
+  "description": "The website for the TGN Archive Project",
+  "main": "index.js",
+  "scripts": {
+    "dev": "vuepress dev src",
+    "build": "vuepress build src"
+  },
+  "license": "MIT",
+  "devDependencies": {
+    "@vuepress/plugin-back-to-top": "^1.8.2",
+    "vuepress": "^1.5.3"
+  },
+  "private": "true"
+}
